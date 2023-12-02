@@ -1,7 +1,7 @@
 # dcarmelle.github.io
 Donita Carmelle B. De Alday
 # Calligraphy
-![Facade](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftwitter.com%2Fhoneydarko%2Fstatus%2F799767124428423168&psig=AOvVaw0jLfNjjuDtLcVhhWZasCry&ust=1701584276246000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCLib4MSN8IIDFQAAAAAdAAAAABAE)
+(https://www.google.com/url?sa=i&url=https%3A%2F%2Ftwitter.com%2Fhoneydarko%2Fstatus%2F799767124428423168&psig=AOvVaw0jLfNjjuDtLcVhhWZasCry&ust=1701584276246000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCLib4MSN8IIDFQAAAAAdAAAAABAE)
 Calligraphy is the art of beautiful handwriting. The term may derive from the Greek words for “beauty” (kallos) and “to write” (graphein). It implies a sure knowledge of the correct form of letters—i.e., the conventional signs by which language can be communicated—and the skill to make them with such ordering of the various parts and harmony of proportions that the experienced, knowledgeable eye will recognize such composition as a work of art. Calligraphic work, as art, need not be legible in the usual sense of the word.
 <iframe width="560" height="315" src="https://www.youtube.com/embed/sBoVGqiSzr4?si=zQYu6nRGA6SyuL_K" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 *Video:How To: Calligraphy & Hand Lettering for Beginners! Tutorial + Tips!*
