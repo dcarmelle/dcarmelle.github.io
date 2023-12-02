@@ -6,6 +6,6 @@ Calligraphy is the art of beautiful handwriting. The term may derive from the Gr
 <iframe width="560" height="315" src="https://www.youtube.com/embed/sBoVGqiSzr4?si=zQYu6nRGA6SyuL_K" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 *Video:How To: Calligraphy & Hand Lettering for Beginners! Tutorial + Tips!*
 
-### Calligraphy A to Z
+### Calligraphy Writing from A to Z
 <iframe width="560" height="315" src="https://www.youtube.com/embed/1mBf8F5N-jQ?si=O_utk3Wo0Esn6fpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 *A to Z letter Calligraphy Tutorial*
